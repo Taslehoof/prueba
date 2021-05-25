@@ -14,10 +14,4 @@ sdkfjasldfkjañsdlf
 dfg
 dsfgkljdsfgklnjcxiuhwet	w
 e
-    as dfkjasdfhñlaksdf
-        
-
-
-	f
-
-	gsdfgsdf
+    as 
